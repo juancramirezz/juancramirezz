@@ -1,1 +1,1 @@
-actualmente estudiando ingenieria informatica en UADE
+actualmente estudiando Abogacia en UADE
